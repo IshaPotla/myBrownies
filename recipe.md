@@ -1,0 +1,1 @@
+Too make brownies, pour pre-mixed brownie powder into a bowl, along with an egg, 1/3 cup of water, and 1/3 cup of olive oil. Pre-heat the oven to 375 degrees before hand. Once your brownie batter is stirred, take a brownie pan and pour the batter in. Than put it in the oven and keep it inside for 40-50 minutes. After it's done, wait for it to cool down and enjoy.
